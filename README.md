@@ -3,6 +3,9 @@ Engaging with the psychological aspects, I aim to establish a connection between
 
 I think it's most beneficial to share this insight with newcomers. 
 
+|ℹ️ |Check [Project Demo](demo.md)|
+|---|:---|
+
 I understand the challenges of maintaining focus  especially freshmen that doesn't approach their studies with a deep sense of purpose.
 
 - I'll be mapping to the following url:  `go-win.ya-ya.tech`
