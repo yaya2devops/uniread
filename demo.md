@@ -9,6 +9,7 @@ They will get guided to the following beauty, [right here](https://istic.compute
 ### Clicking the above asset directs to this project.
 - A bridge between students and materials.
 - A domain with go-win to increase purpose.
+- A background ft. a G.O.A.T for empowerment.
 
 ![The Actual Idea](assets/G.O.A.T/win-s.png)
 
@@ -24,4 +25,16 @@ And also enhance the perceived accessibility by reintegrating the link within.
 This not necessarily applicable to subsequent ones.<br>
 And I'll tell you why and how my job is done here.
 
-Once students get really in, they tend and will navigate and assimilate remaining and related information independently.
+Once students get really in, they tend and will navigate remaining and related information independently.
+
+🔫 That's the influence of a positive pattern.
+
+I envision human behavior and chart the path for personal, communal, and global advancement.
+
+
+
+
+
+
+
+
