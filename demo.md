@@ -4,7 +4,8 @@
 
 They will get guided to the following beauty, [right here](https://istic.computer-engineering.tech/#/Semester1/1?id=%f0%9f%93%96-communication-techniques);
 
-![Getting Kids Attention](https://istic.computer-engineering.tech/images/Curriculum/hey.png)
+[<img src="https://istic.computer-engineering.tech/images/Curriculum/hey.png">](https://istic.computer-engineering.tech/#/Semester1/1?id=📖-communication-techniques)
+
 
 ### Clicking the above asset directs to this project.
 - A bridge between students and materials.
